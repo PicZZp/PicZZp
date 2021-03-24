@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @PicZZp
 - 👀 I’m interested in Copy and paste scipt
 - 🌱 I’m currently learning understand him
-- 💞️ I’m looking to collaborate on ... (privasi)
 - 📫 How to reach me chat aja gua ramah kok, canda
 
 <!---
